@@ -1,0 +1,1 @@
+# Omsetningen-Photo
